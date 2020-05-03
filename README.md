@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
-  『2019年08月02日』 一口气喝了2kg牛奶，拉肚子的一天
+  『2019年08月02日』 一口气喝了1kg牛奶，拉肚子的一天
 </p>
 <p align="center">
   <img width="461" height="461" src="http://ww1.sinaimg.cn/large/7f5c98f4gy1gefgzla49sj20ct0ct75r.jpg">
